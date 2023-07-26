@@ -1,9 +1,9 @@
-## Hi Everyone!👋 , My name is Tiara Laudya 🌸
-⭐ I studied at SMK N 2 Magelang.
+## Hi Everyone!👋 , My name is Tiara Laudya 🧚‍♀️
+💙 I studied at SMK N 2 Magelang.
 
-⭐ I am currently studying programming.
+💙 I am currently studying programming.
 
-⭐ I am have interest in web programming.
+💙 I am have interest in web programming.
 
 
 
